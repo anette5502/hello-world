@@ -1,1 +1,2 @@
 # hello-world
+Hello my name is Anette. I am 17 years old and was born on May 5,2002 in El Paso, Texas. I have 4 siblings and 3 of them are brothers while I have only 1 sister. I am the middle child sadly. I have 2 older brothers, but my oldest sibling is my half brother. The other 2 siblings are younger then me by one year and the other by 9 years. I recently moved from Texas to Colorado because my dad works here. I love listening to music, especially if it's Billie Eilish, Bad BUnny, or Roderick Porter.
